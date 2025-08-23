@@ -1,3 +1,3 @@
 # belajar-kolaborasi
 
-Belajar di Dicoding program ASAH itu seru tau
+Join di program ASAH dari Dicoding dan Accenture seru tau.
